@@ -1,6 +1,6 @@
-❝.·:¨༺   *come forward if you dare, i will finish what* ***[raiden](https://open.spotify.com/playlist/7K2fvXfyM0IViEbj61mi2q?si=56ffa5cc67864e95)*** *could not*. ༻¨:·❞
+❝.·:¨༺   *come forward if you dare, i will finish what* **[raiden](https://open.spotify.com/playlist/7K2fvXfyM0IViEbj61mi2q?si=56ffa5cc67864e95)** *could not*. ༻¨:·❞
 
-             ₓ˚. ୭ ˚○◦˚.˚✧*:･ﾟ✧       *:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧          ୧ .˚ₓₓ˚. ୭ ˚○*:･ﾟ✧*:･ﾟ✧◦˚.˚◦○˚ ୧    .˚ₓₓ˚. ୭ ˚○◦˚.˚◦○˚ ୧ .˚ₓ･ﾟ✧
+          ₓ˚. ୭ ˚○◦˚.˚◦○˚*:･ﾟ✧*:･ﾟ✧       *:･ﾟ✧*:･ﾟ✧*:･ﾟ✧◦˚.˚˚ₓₓ˚. ୭ ˚○◦˚.˚◦○˚           ୧ .˚ₓₓ˚. ୭ ˚○*:･ﾟ✧*:･ﾟ✧    ◦˚○◦˚.˚◦○˚ ୧ .˚ₓ
 ₊˚ ♡⃕⠀ Mendoza Pidieu or **ten ten** ✧. she [ノ](https://en.pronouns.page/she) they  |  straight.cis
         ๑♡՞ multifandom artist and writer യ video/card games , **dices** , **history** , paranormal stuffs ﹠ journaling
 
