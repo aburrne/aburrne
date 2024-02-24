@@ -1,7 +1,9 @@
-Mendoza Pidieu or **ten ten** ✧. she [ノ](https://en.pronouns.page/she) they  |  straight.cis
-        ๑♡՞ multifandom artist and writer യ video/card games , **dices** , **history** , paranormal stuffs ﹠ journaling
+ₓ˚. ୭ ˚○◦˚.˚◦○˚*:･ﾟ✧*:･ﾟ✧       *:･ﾟ✧*:･ﾟ✧*:･ﾟ✧◦˚.˚˚ₓₓ˚. ୭ ˚○◦˚.˚◦○˚           ୧ .˚ₓₓ˚. ୭ ˚○*:･ﾟ✧*:･ﾟ✧    ◦˚○◦˚.˚◦○˚ ୧ .˚ₓ
 
-> intj →﹐[harry dubois](https://discoelysium.fandom.com/wiki/Harrier_Du_Bois) kinnie
+I'm **Ten Ten** or Mendoza Pidieu. My pronouns are she [ノ](https://en.pronouns.page/she) her. My roblox profile is [cutepaiico](https://www.roblox.com/users/819910027/profile) and on Roblox Devforum with the same username. I'm a gamer, an artist/sculptor (focusing on character build and visual), a writer who has nerdy niche interest. 
 
-♡⃘ ✦ main fandoms: mk, re, watch dogs, gta, hitman series, disco elysium, ![OLnUL5v](https://github.com/crenzy-rbyi/crenzy-rbyi/assets/156772579/dc4ad98d-41c5-4ba5-9dbf-fa23f300a529) kingsman movies
-౨ৎ waiting to code my own website... dms + friend req open , use tanetones sometimes -- let me know! ✐
+౨ৎ I do some FrontEnd programming (HTML, CSS, Maybe JavaScript sooner), testing beta games and I love designing (Canva % Roblox UI) mostly experimenting with colors ♡⃘ ✦
+
+If you find aburrne in another platform, its mostly me ᭄ᬽ I have no carrd or current website.
+
+ₓ˚. ୭ ˚○◦˚.˚◦○˚*:･ﾟ✧*:･ﾟ✧       *:･ﾟ✧*:･ﾟ✧*:･ﾟ✧◦˚.˚˚ₓₓ˚. ୭ ˚○◦˚.˚◦○˚           ୧ .˚ₓₓ˚. ୭ ˚○*:･ﾟ✧*:･ﾟ✧    ◦˚○◦˚.˚◦○˚ ୧ .˚ₓ
